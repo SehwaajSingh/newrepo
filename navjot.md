@@ -5,7 +5,3 @@ mullanpur waasi
 
 mullanpur waasi
 mullanpur waasi
-mullanpur waasi
-mullanpur waasi
-mullanpur waasi
-mullanpur waasi
